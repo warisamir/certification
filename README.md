@@ -1,5 +1,7 @@
 Resume Link 
 ![image](https://user-images.githubusercontent.com/77074869/225122754-c2911ca5-8224-4f96-88a7-a9a2810b61a8.png)
+![image](https://user-images.githubusercontent.com/77074869/227694191-e5b2b75b-87a7-45e0-b66f-8ff7243f0fad.png)
+
 
 # certification
 https://www.holopin.io/@warisamir1
