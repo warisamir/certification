@@ -8,6 +8,8 @@ Resume Link
 https://www.holopin.io/@warisamir1
 
 REGISTERED
+![image](https://user-images.githubusercontent.com/77074869/227694648-16201606-e121-4790-b0bd-d183bd31cd3f.png)
+
 https://www.holopin.io/userbadge/cl9i1uaim1134809mfg9tias7n
 
 1ST PR ACCEPTED
