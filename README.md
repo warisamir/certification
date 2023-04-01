@@ -1,5 +1,5 @@
 Resume Link 
-![image](https://user-images.githubusercontent.com/77074869/225122754-c2911ca5-8224-4f96-88a7-a9a2810b61a8.png)
+![image](https://user-images.githubusercontent.com/77074869/229276635-5521ff95-5589-49f6-82aa-6b5253e2b400.png)
 
 ![image](https://user-images.githubusercontent.com/77074869/227695666-04e804db-e1bc-429d-9fc6-7e8f60b42945.png)
 
