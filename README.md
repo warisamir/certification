@@ -3,6 +3,7 @@ Resume Link
 
 ![image](https://user-images.githubusercontent.com/77074869/227695666-04e804db-e1bc-429d-9fc6-7e8f60b42945.png)
 ![image](https://user-images.githubusercontent.com/77074869/232261373-0a192405-64c9-4aed-9886-bc1fc9d38230.png)
+![image](https://user-images.githubusercontent.com/77074869/232261468-133edc42-f946-425c-8ddc-d72a6cd9e730.png)
 
 
 # Open source badges
